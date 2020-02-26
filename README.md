@@ -1,2 +1,2 @@
 # labas
-mano githhub for dummies
+mano githhub for  bbnbnbn
